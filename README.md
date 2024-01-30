@@ -7,3 +7,5 @@
 
 
 永久发布页：https://ys.ccmoe.cc/
+
+备用发布页：https://rentry.org/ecmys
