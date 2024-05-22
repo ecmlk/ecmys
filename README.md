@@ -3,9 +3,13 @@
 
 官网：https://www.ecmys.com/
 
-备用：https://www.ecmys.top/
+备用1：https://www.ecmys.top/
+
+备用2：https://www.ecmys.cc/
 
 
 永久发布页：https://ys.ccmoe.cc/
 
-备用发布页：https://rentry.org/ecmys
+备用发布页1：https://rentry.org/ecmys
+
+备用发布页2：https://github.com/ccmoecc/ecmys
