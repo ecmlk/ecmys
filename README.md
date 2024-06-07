@@ -1,13 +1,13 @@
-### 二次萌影视 · 最新网址（2024.05.22 最后编辑时间）
->最新地址：[https://www.ecmys.com](https://www.ecmys.com?ref=rentry.org)
+### 二次萌影视 · 最新网址（2024.06.07 最后编辑时间）
+>最新地址：[https://www.ecmys.com](https://www.ecmys.com/?ref=github.com)
 >
->备用地址1：[https://www.ecmys.top](https://www.ecmys.top?ref=rentry.org)
+>备用地址1：[https://www.ecmys.top](https://www.ecmys.top/?ref=github.com)
 >
->备用地址2：[https://www.ecmys.cc](https://www.ecmys.cc?ref=rentry.org)
+>备用地址2：[https://www.ecmys.cc](https://www.ecmys.cc/?ref=github.com)
 
 ### 发布页
 发布最新网址，请收藏以下网址。
->永久发布页：[https://ys.ccmoe.cc](https://ys.ccmoe.cc?ref=rentry.org)
+>永久发布页：[https://ys.ccmoe.cc](https://ys.ecmlk.com/?ref=github.com)
 >
 >备用发布页·1：[https://rentry.org/ecmys](https://rentry.org/ecmys)
 >
