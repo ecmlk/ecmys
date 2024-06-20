@@ -1,4 +1,4 @@
-### 二次萌影视 · 最新网址（2024.06.07 最后编辑时间）
+### 二次萌影视 · 最新网址（2024.06.20 最后编辑时间）
 >最新地址：[https://www.ecmys.com](https://www.ecmys.com/?ref=github.com)
 >
 >备用地址1：[https://www.ecmys.top](https://www.ecmys.top/?ref=github.com)
@@ -7,7 +7,7 @@
 
 ### 发布页
 发布最新网址，请收藏以下网址。
->永久发布页：[https://ys.ccmoe.cc](https://ys.ecmlk.com/?ref=github.com)
+>永久发布页：[https://ys.ecmlk.com](https://ys.ecmlk.com/?ref=github.com)
 >
 >备用发布页·1：[https://rentry.org/ecmys](https://rentry.org/ecmys)
 >
