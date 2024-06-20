@@ -1,3 +1,5 @@
+![image](https://github.com/ccmoecc/ecmys/assets/147452931/2a581d7a-03d6-47ca-8860-2c9cb7b895ab)
+
 ### 二次萌影视 · 最新网址（2024.06.20 最后编辑时间）
 >最新地址：[https://www.ecmys.com](https://www.ecmys.com/?ref=github.com)
 >
