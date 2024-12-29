@@ -1,11 +1,11 @@
 ![image](https://cdn.ecmlk.com/gh/ecmlk/picx-images-hosting@master/屏幕截图-2024-12-29-153642.2rv7hde1ev.webp)
 
 ### 二次萌影视 · 最新网址（2024.06.20 最后编辑时间）
->最新地址：[https://www.ecmys.com](https://www.ecmys.com/?ref=github.com)
+>主用地址：[https://www.ecmys.com](https://www.ecmys.com/?ref=github.com)
 >
->备用地址1：[https://www.ecmys.top](https://www.ecmys.top/?ref=github.com)
+>备用地址：[https://www.ecmys.top](https://www.ecmys.top/?ref=github.com)
 >
->备用地址2：[https://www.ecmys.cc](https://www.ecmys.cc/?ref=github.com)
+>全球专用：[https://www.ecmys.cc](https://www.ecmys.cc/?ref=github.com)
 
 ### 发布页
 发布最新网址，请收藏以下网址。
@@ -13,7 +13,7 @@
 >
 >备用发布页·1：[https://rentry.org/ecmys](https://rentry.org/ecmys)
 >
->备用发布页·2：[https://github.com/ccmoecc/ecmys](https://github.com/ccmoecc/ecmys)
+>备用发布页·2：[https://github.com/ccmoecc/ecmys](https://github.com/ecmlk/ecmys)
 
 ### 网站小技巧
 1. 如果浏览器输入网址，请手动添加 `https` 而非 `http`
