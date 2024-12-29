@@ -13,7 +13,7 @@
 >
 >备用发布页·1：[https://rentry.org/ecmys](https://rentry.org/ecmys)
 >
->备用发布页·2：[https://github.com/ccmoecc/ecmys](https://github.com/ecmlk/ecmys)
+>备用发布页·2：[https://github.com/ecmlk/ecmys](https://github.com/ecmlk/ecmys)
 
 ### 网站小技巧
 1. 如果浏览器输入网址，请手动添加 `https` 而非 `http`
