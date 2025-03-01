@@ -1,9 +1,7 @@
 ![image](https://cdn.ecmlk.com/gh/ecmlk/picx-images-hosting@master/屏幕截图-2024-12-29-153642.2rv7hde1ev.webp)
 
-### 二次萌影视 · 最新网址（2024.12.29 最后编辑时间）
->主用地址：[https://www.ecmys.com](https://www.ecmys.com/?ref=github.com)
->
->备用地址：[https://www.ecmys.top](https://www.ecmys.top/?ref=github.com)
+### 二次萌影视 · 最新网址（2025.03.02 最后编辑时间）
+>主用地址：[https://www.ecmys.vip](https://www.ecmys.vip/?ref=github.com)
 >
 >全球专用：[https://www.ecmys.cc](https://www.ecmys.cc/?ref=github.com)
 
